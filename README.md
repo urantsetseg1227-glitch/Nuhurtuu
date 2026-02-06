@@ -1,2 +1,0 @@
-# Nuhurtuu
-Hairtaishuu
